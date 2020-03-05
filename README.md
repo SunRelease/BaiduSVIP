@@ -4,15 +4,14 @@
 
 ### 百度网盘账号 
 
-- 3.4更新
+- 3.6更新
 
-- [x] 账号：15115637050密码：nmxqwn354
-- [x] 账号：15619372814 密码：tttt5555
-- [x] 账号：15758252828密码：byYL0115
-- [x] 账号:gcgxyhrwv492@game.weibo.com密码:bhnrxsgl1
-- [x] 账号:phepuxgmdijf32@game.weibo.com密码:gkgdrztuxj11
+- [x] 账号:16532633925密码:mianfeivip.com8 
+- [x] 账号:17111004221账号:mianfeivip.com4
+- [x] 账号:15934502834密码:uuuu3333
+- [x] 账号:16534101312密码:mianfeivip.coms
+- [x] 账号:16534101330密码:mianfeivip.com38
 - [x] 账号:13635846599密码:uuuu3333
-
 ### 注意事项
 
 - **温馨提示**
