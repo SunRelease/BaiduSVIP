@@ -4,13 +4,15 @@
 
 ### 百度网盘账号 
 
-- 3.25更新
+- 3.30更新
 
-- [x] 账：15269816970  密：lingxing6970
-- [x] 账：17054676248  密：yyyy6666
-- [x] 账：18711516006  密：atioyb557  
-- [x] 账号:15274034156密码:ckvtzy939
-- [x] 账号:13649889928密码:ipg53793
+- [x] 微博登录16532967466密mianfeivip.comee
+- [x] 微博登录16532967477密mianfeivip.comfh
+- [x] 账号 svipshare79@sina.com密码 111222gg
+- [x] 账号 17832471236密码 qwe123456
+- [x] 账号:8vdtq10p@touzi580.com密码:6ly25jec14 
+- [x] 账号:qlqhvh699872@game.weibo.com密码:irpx85572
+- [x] 账号:ewwv5wic@touzi580.com密码:1v0l7oe8rb
 
 ### 注意事项
 
