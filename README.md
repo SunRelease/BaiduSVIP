@@ -4,15 +4,12 @@
 
 ### 百度网盘账号 
 
-- 3.31更新
+- 4.1更新
 
-- [x] 微博登录16532967466密mianfeivip.comee
-- [x] 微博登录16532967477密mianfeivip.comfh
-- [x] 账号18474423445 密码nsabev507 
-- [x] 账号:8vdtq10p@touzi580.com密码:6ly25jec14 
-- [x] 账号4s35foe2@touzi580.com密码2ssiz2klbs
-- [x] 账号ouok4haw@touzi580.com密码2ja7wnh7r9
-- [x] 账号6j68xtsl@touzi580.com密码2htqommfzk
+- [x] 账号 17832471236密码 qwe123456
+- [x] 账号：aw42lk3b@touzi580.com密码：6x8xn0xc1x
+- [x] 账号：pwydaw798387@game.weibo.com密码：dbnd54057
+- [x] 账号：qlqhvh699872@game.weibo.com密码：irpx85572
 
 ### 注意事项
 
