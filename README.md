@@ -4,18 +4,16 @@
 
 ### 百度网盘账号 
 
-- 4.16更新
+- 4.18更新
 
-- [x] 账号18022649119密码makelove
 
-- [x] 账号16534101327密码mianfeivip.comgh
-
-- [x] 账号16534101348密码mianfeivip.comff
-
-- [x] 账号16534101347密码mianfeivip.comyg
-
-- [x] 账号16534101343密码mianfeivip.comcf
-
+- [x] 账号16532964399密码mianfeivip.comwg
+- [x] 账号18230546449密码rzaonr541
+- [x] 账号16532964533密码mianfeivip.com6f
+- [x] 账号16532964577密码mianfeivip.comjb
+- [x] 账号16534101190密码mianfeivip.combf
+- [x] 账号16532966411密码mianfeivip.com3b
+- [x] 账号16532966400密码mianfeivip.comfs
 
 
 ### 注意事项
