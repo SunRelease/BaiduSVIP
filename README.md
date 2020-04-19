@@ -4,16 +4,25 @@
 
 ### 百度网盘账号 
 
-- 4.18更新
+- 4.19更新
 
 
-- [x] 账号16532964399密码mianfeivip.comwg
-- [x] 账号18230546449密码rzaonr541
-- [x] 账号16532964533密码mianfeivip.com6f
-- [x] 账号16532964577密码mianfeivip.comjb
-- [x] 账号16534101190密码mianfeivip.combf
-- [x] 账号16532966411密码mianfeivip.com3b
-- [x] 账号16532966400密码mianfeivip.comfs
+- [x] 账号16534101206密码mianfeivip.com75
+
+- [x] 账号16532966755密码mianfeivip.coma8
+
+- [x] 账号16532966566密码mianfeivip.com24
+
+- [x] 账号00601114189520密码nv8492737
+
+- [x] 账号15768164584密码iqu18398
+
+- [x] 账号13549890951密码wah84453
+
+- [x] 账号18216104545密码wsqjnh383
+
+- [x] 账号czj9pfxh@touzi580.com密码5pk5wyt981
+
 
 
 ### 注意事项
