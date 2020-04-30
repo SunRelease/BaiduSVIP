@@ -4,23 +4,13 @@
 
 ### 百度网盘账号 
 
-- 4.27更新
+- 4.30更新
 
-- [x] 账号15920806937密码pjq99245
-
-- [x] 账号13163528406密码uuuu3333
-
-- [x] 账号16532964077密码mianfeivip.com5r
-
-- [x] 账号16534101273密码mianfeivip.comfg
-
-- [x] 账号15768603280密码cwr37362
-
-- [x] 账号16534101253密码mianfeivip.com43
-
-- [x] 账号16532964300密码mianfeivip.com6g
-
-- [x] 账号13875435810密码ouhihx872.
+- [x] 账号9phobg67@touzi580.com   密码2xpa8qf3ps 
+- [x] 账号hggpbtdl@touzi580.com  密码8q11g7tdkg 
+- [x] 账号vofipzao@touzi580.com  密码6qvixs960k 
+- [x] 账号17300797397   密码xiaoxkt520
+- [x] 账号14527380938 密码gk85185572 
 
 ### 注意事项
 
