@@ -4,7 +4,7 @@
 
 ### 百度网盘账号 
 
-- 6.27更新【邮箱登录验证】
+- 6.27更新 [👉邮箱登录,点击查看详情👈](https://mp.weixin.qq.com/s/I92g9NQHru8VkGvXl57ljg)
 ---
 - [x] 网盘账号:xgdjnveet1075@163.com网盘密码:jh60037xg
 - [x] 邮箱账号:xgdjnveet1075@163.com邮箱密码:wpb917
@@ -23,7 +23,7 @@
 
 - **温馨提示**
 
-- 由于百度最近对微博的封杀，现在启用新方法：[邮箱登录](https://mp.weixin.qq.com/s/I92g9NQHru8VkGvXl57ljg)
+- 由于百度最近对微博的封杀，现在启用新方法：[👉邮箱登录,点击查看详情👈](https://mp.weixin.qq.com/s/I92g9NQHru8VkGvXl57ljg)
 
 - Github上几乎会2天更新一次,如果想要更好的体验,建议大伙还是去支持一下**正版**。
 
