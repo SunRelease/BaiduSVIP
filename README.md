@@ -3,28 +3,28 @@
 每日分享百度网盘SVIP会员账号,百度云会员,不定期更新,如对你有帮助,请给个`♥ Star`或者做个`❀ follower`支持一下哦。
 
 
-#### 6.30更新 [👉邮箱登录,点击查看详情👈](https://mp.weixin.qq.com/s/I92g9NQHru8VkGvXl57ljg) 
+#### 7.1更新 [👉邮箱登录,点击查看详情👈](https://mp.weixin.qq.com/s/I92g9NQHru8VkGvXl57ljg) 
+
+---
+
+- [x] 网盘账号:gs6017w@163.com网盘密码: kkk566684
+- [x] 邮箱账号:gs6017w@163.com邮箱密码:9w2xc44
 
 
 ---
 
-- [x] 网盘账号:mjon6147107@163.com百度密码:cs60037mj
-- [x] 邮箱账号:mjon6147107@163.com邮箱密码:ziv213
+- [x] 网盘账号: fbgvb7c@163.com网盘密码:kkk103112
+- [x] 邮箱账号: fbgvb7c@163.com邮箱密码:sxtx5tl
 
 ---
 
-- [x] 网盘账号:btl5b4o@163.com网盘密码:kkk590456
-- [x] 邮箱账号:btl5b4o@163.com邮箱密码:beibv3
+- [x] 网盘账号:jm9sik3@163.com网盘密码:kkk103112
+- [x] 邮箱账号:jm9sik3@163.com 邮箱密码:lnn5jig
 
 ---
 
-- [x] 网盘账号:zrhdcu16376@163.com  网盘密码:cs60037zr   
-- [x] 邮箱账号:zrhdcu16376@163.com  邮箱密码:huaihuai9
-
----
-
-- [x] 网盘账号:n2juq42@163.com网盘密码:kkk114720
-- [x] 邮箱账号:n2juq42@163.com邮箱密码:c4lovcy
+- [x] 网盘账号:upqgf0238ievw3@163.com网盘密码: kkk285482
+- [x] 邮箱账号:upqgf0238ievw3@163.com邮箱密码:cd18094
 
 ---
 
