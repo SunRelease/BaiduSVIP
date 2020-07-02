@@ -3,28 +3,27 @@
 每日分享百度网盘SVIP会员账号,百度云会员,不定期更新,如对你有帮助,请给个`♥ Star`或者做个`❀ follower`支持一下哦。
 
 
-#### 7.1更新 [👉邮箱登录,点击查看详情👈](https://mp.weixin.qq.com/s/I92g9NQHru8VkGvXl57ljg) 
+#### 7.2更新 [👉邮箱登录,点击查看详情👈](https://mp.weixin.qq.com/s/I92g9NQHru8VkGvXl57ljg) 
 
 ---
 
-- [x] 网盘账号:gs6017w@163.com网盘密码: kkk566684
-- [x] 邮箱账号:gs6017w@163.com邮箱密码:9w2xc44
-
-
----
-
-- [x] 网盘账号: fbgvb7c@163.com网盘密码:kkk103112
-- [x] 邮箱账号: fbgvb7c@163.com邮箱密码:sxtx5tl
+- [x] 网盘账号: fwe3gyc@163.com网盘密码:kkk519029
+- [x] 邮箱账号: fwe3gyc@163.com邮箱密码:ypjbhvl
 
 ---
 
-- [x] 网盘账号:jm9sik3@163.com网盘密码:kkk103112
-- [x] 邮箱账号:jm9sik3@163.com 邮箱密码:lnn5jig
+- [x] 网盘账号:avnxlv@163.com网盘密码: yh60037av
+- [x] 邮箱账号:avnxlv@163.com邮箱密码:a99988
 
 ---
 
-- [x] 网盘账号:upqgf0238ievw3@163.com网盘密码: kkk285482
-- [x] 邮箱账号:upqgf0238ievw3@163.com邮箱密码:cd18094
+- [x] 网盘账号:dlvc49@163.com网盘密码: kkk688093
+- [x] 邮箱账号:dlvc49@163.com邮箱密码:a04255 
+
+---
+
+- [x] 网盘账号:khreq21jzdi23@163.com网盘密码: zz60037kh
+- [x] 邮箱账号:khreq21jzdi23@163.com邮箱密码: xwh8712
 
 ---
 
