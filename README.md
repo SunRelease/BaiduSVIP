@@ -3,35 +3,38 @@
 每日分享百度网盘SVIP会员账号,百度云会员,不定期更新,如对你有帮助,请给个`♥ Star`或者做个`❀ follower`支持一下哦。
 
 
-#### 7.17更新 [👉邮箱登录,点击查看详情👈](https://mp.weixin.qq.com/s/I92g9NQHru8VkGvXl57ljg) 
+#### 7.27更新 [👉邮箱登录,点击查看详情👈](https://mp.weixin.qq.com/s/I92g9NQHru8VkGvXl57ljg) 
 
 ---
 
-- [x] 账号: sl437acxy124@163.com密码: yh60037sl
-- [x] 邮箱账号: sl437acxy124@163.com 邮箱密码: yms0400
 
-----
-
-- [x] 账号: kbaicw@163.com 密码: aa189496
-- [x] 邮箱账号: kbaicw@163.com邮箱密码: a26473
+- [x] 网盘账号：wsktft@163.com	网盘密码：aa681949	
+- [x] 密保邮箱：wsktft@163.com	邮箱密码：a18454
 
 ---
 
-#### 7.17更新【微博第三方登录】
+- [x] 网盘账号：vfocs4@163.com网盘密码：sh60037vf
+- [x] 邮箱账号：vfocs4@163.com邮箱密码：a47973
 
 ---
 
-- [x] 账号: 13828570529
-- [x] 密码: xh666666
+- [x] 网盘账号：wovpgm@163.com网盘密码：aa912645
+- [x] 密保邮箱：wovpgm@163.com邮箱密码：a99836
 
-- [x] 账号: 16524809979
-- [x] 密码: os26823084
+---
 
-- [x] 账号: 14586847699
-- [x] 密码: yc76486742
+#### 7.27更新【微博第三方登录】
 
-- [x] 账号: 16534101196 
-- [x] 密码: mianfeivip.come3
+---
+
+- [x] 账号：15575640190 
+- [x] 密码：os12969428
+
+- [x] 账号：16532967466
+- [x] 密码：mianfeivip.come2
+
+- [x] 账号：16567193027
+- [x] 密码：nqsw401559
 
 
 ---
@@ -50,4 +53,8 @@
 
 - 如果想要得到更多优质资源和软件,可以关注微信公众号**软件分享栈**,但是如果只是**想要绝对能够登陆上的百度账号而关注，我觉得还是上拼多多购买来得直接**。
 
-![软件分享栈](https://mmbiz.qpic.cn/sz_mmbiz_jpg/k3AvvTgqtAgEic5TdbeX4vVNKDKscmficQ8l6q2vPnND4D72wTtib6iaqCXqiafpvs9NwrSSN2NgoLw3nwm06Jmu8zg/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1&wx_co=1)
+<p align="center">
+  
+ <img align="center" src="https://mmbiz.qpic.cn/sz_mmbiz_jpg/k3AvvTgqtAgEic5TdbeX4vVNKDKscmficQ8l6q2vPnND4D72wTtib6iaqCXqiafpvs9NwrSSN2NgoLw3nwm06Jmu8zg/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1&wx_co=1" /> 
+ 
+</p>
