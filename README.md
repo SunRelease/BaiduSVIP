@@ -3,7 +3,7 @@
 每日分享百度网盘SVIP会员账号,百度云会员,不定期更新,如对你有帮助,请给个`♥ Star`或者做个`❀ follower`支持一下哦。
 
 
-#### 暂停更新 [👉邮箱登录,点击查看详情👈](https://mp.weixin.qq.com/s/I92g9NQHru8VkGvXl57ljg) 
+#### 暂停更新
 
 ---
 
